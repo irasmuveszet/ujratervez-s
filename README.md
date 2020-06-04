@@ -1,0 +1,2 @@
+# ujratervez-s
+Újratervezzük
